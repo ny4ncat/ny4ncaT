@@ -9,7 +9,7 @@ c+h ◞  w2i
 <br>
 <br>
 <br>
-    no dni, everyone can int!!!!
+    no dni, everyone can int if u make me uncomfy ill js block u, i block freely ALOT 
 
 
 <p align="center">
