@@ -3,7 +3,7 @@ c+h ◞  w2i
 <br>
     neufic ◞  neuship
 <br>
-[main](https://github.com/FORCEDNATURE) [ata](https://literallyscout.atabook.org) [guns](https://guns.lol/forcednature) [straw](https://forcednature.straw.page)
+[main](https://github.com/FORCEDNATURE) [ata](https://asspancakes.atabook.org) [guns](https://guns.lol/forcednature) [straw](https://forcednature.straw.page)
 <br>
 <br>
 <br>
